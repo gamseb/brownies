@@ -29,7 +29,7 @@
 
 4 vejce
 
-3 vrchovaté lžíce bílé mouky
+3 vrchovaté lžíce bílé hladké mouky
 
 
 ### Postup:
